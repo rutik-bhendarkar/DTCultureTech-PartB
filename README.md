@@ -1,1 +1,0 @@
-# DTCultureTech-PartB
